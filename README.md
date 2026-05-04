@@ -1,1 +1,1 @@
-# Ph-ng-ph-p-t-nh---BTL
+Phương pháp tính
